@@ -10,6 +10,6 @@
 
 
 ## Contact
-Developer: `春木#5575`
+Developer: `春木 | 𝕳𝖆𝖗𝖚𝖐𝖎`
 
 Si tiene algún problema, no dude en ponerse en contacto conmigo. 😉
